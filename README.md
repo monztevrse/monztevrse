@@ -1,3 +1,9 @@
-⭒ my name's steven, but I also go by monzter (or ste to avoid confusion)
+hello! my name's steven, but I also go by monzter or ste
 
-⭒ DNI if you are under 13
+do not interact if you are under 13.
+
+I don't roleplay and will most likely ignore you if you try to rp with me, sorry!
+
+mentally ill
+
+icon creds: sorrelpaws on tumblr
