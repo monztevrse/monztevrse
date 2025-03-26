@@ -1,4 +1,4 @@
-hello! my name's steven (ste for short) or monzter
+hello! my name's steven, I also go by monzter
 
 do not interact if you are under 13.
 
